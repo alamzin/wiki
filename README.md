@@ -1,0 +1,2 @@
+# wiki
+Media Trends Wiki
